@@ -37,7 +37,4 @@
 ---
 
 ## 🚀 Getting Started
-20-MAY-2025
-12 july
-3 September
 It is available in my laptop, it is ready to uploaded but, I am advancing with new features available in the internet, so yeah stay tuned!
